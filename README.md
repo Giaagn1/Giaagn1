@@ -1,0 +1,5 @@
+- 👋 Hi, My name is Gia !
+- 👀 I’m trully interested in IT and New technologies topics.
+- 🌱 I’m currently pursuing a degree in Business Administration and next school year, I will specialize more in AI and Big Data.
+- 💞️ Do not hesitate to contact me to collaborate on projects together !
+- 📫 Let's connect !
